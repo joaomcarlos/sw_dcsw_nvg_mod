@@ -1,1 +1,0 @@
-SilentWarrior_DCSW_NVG_Mod
